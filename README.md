@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @pentobot
+- 👀 I’m interested in Helping out Pentonistas in their day to day Job
